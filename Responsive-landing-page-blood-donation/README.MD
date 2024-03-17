@@ -12,3 +12,4 @@
 
 🤍 Join me on Instagram for more content [EthanDeL](https://www.instagram.com/ethan_del_code/)
 
+<img width="548" alt="miniature" src="https://github.com/EthanDeL/Responsive-landing-page-blood-donation/assets/121880462/b898e3c9-cd90-4bce-9188-329ca0d08335">
